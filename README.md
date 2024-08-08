@@ -1,4 +1,4 @@
-## Voice Over cho Video "Build PC Lần Đầu: Bài Học Nhớ Đời Khi Mainboard Không Có Wifi" (10 phút)
+## Voice Over cho Video (10 phút)
 
 **(Intro music upbeat, năng động)**
 
